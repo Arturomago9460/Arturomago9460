@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **Automation Cypress**
 
-- 📫 How to reach me **Arturomago94@gmail.com**
+- 📫 How to reach me **Arturomago9460@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
